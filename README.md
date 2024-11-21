@@ -15,6 +15,6 @@
 
 #### 🙏🌹
 
-![Banner Deusa O Amor é a única emoção .png](https://github.com/leoawen/leoawen/blob/main/Banner%20Deusa%20O%20Amor%20%C3%A9%20a%20%C3%BAnica%20emo%C3%A7%C3%A3o%20.png)
+![Deusa Natureza da Luz - Abertura.png](https://github.com/leoawen/leoawen/blob/main/Deusa%20Natureza%20da%20Luz%20-%20Abertura.png)
 
 
